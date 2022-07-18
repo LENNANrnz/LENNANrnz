@@ -5,4 +5,5 @@ check some some interesting things about me:
 
 Instagram: https://www.instagram.com/lennanrnz/ <br>
 linkedin: https://www.linkedin.com/in/lennan-renzo-942bb6206/<br>
+email: lennancontato@gmail.com
 My Portfolio: 
